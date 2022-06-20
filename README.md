@@ -1,2 +1,1 @@
-- E-mail : nohjae421@gmai.com
 - Linkedin : www.linkedin.com/in/alexnoh
